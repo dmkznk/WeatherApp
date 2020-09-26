@@ -1,1 +1,1 @@
-Link on thas magic https://dimasweatherapp.web.app/
+Link on this magic https://dimasweatherapp.web.app/
